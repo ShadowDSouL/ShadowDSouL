@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @ShadowDSouL<br>- 👀 I’m interested in virtual things, so I like Animes and Online Games. I also like Computer and Technology.<br>- 🌱 I’m currently studying computer science (Cyber Security)<br>- 💞️ I’m looking to collaborate on any project that can improve myself.<br>- 📫 You can reach me at zhong15@hotmail.com
+- 👋 Hi, I’m @ShadowDSouL<br>- 👀 I’m interested in virtual things, so I like Animes and Online Games. I also like Computers and Technologies.<br>- 🌱 I’m currently studying Computer Science (Cyber Security), on the way to becoming a Pentester.<br>- 💞️ I’m looking to collaborate on any project that can improve myself.<br>- 📫 You can reach me at zhong15@hotmail.com
 
 
 ## 🌐 Socials:
